@@ -1,2 +1,2 @@
 # dandierStiggy.github.io
-Personal Website
+SOLVE THE ENIGMA. GET PAID.
