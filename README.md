@@ -1,2 +1,2 @@
 # dandierStiggy.github.io
-SOLVE THE ENIGMA.
+SOLVE THE ENIGMA. FREE ME.
